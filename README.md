@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Douma
 - 💞️ I’m looking to collaborate on NOT Douma
 - 📫 How to reach me: just don't
-- 😄 Pronouns: sher/her
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I love Douma.
 
 <!---
